@@ -3,5 +3,5 @@
 
 > Cararayan, Naga City
 ---
-- [Facebook].(https://www.facebook.com/carlos.adelatorre.1)
+- [Facebook].(https://www.facebook.com/carlos.adelatorre)
 - [Instagaram].(https://www.instagram.com/betlognijoven)
