@@ -3,5 +3,5 @@
 
 > Cararayan, Naga City
 ---
-- [Facebook].(https://www.faceboon.com/CarlosDave)
+- [Facebook].(https://www.facebook.com/CarlosDave)
 - Instagaram
